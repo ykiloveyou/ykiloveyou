@@ -8,3 +8,6 @@ fandoms: jjk, mp100, frieren, mashle, the owl house, the last guest, forsaken, s
 
 please int: jjk enjoyers, nanami devotees, reality shifters, shin fans, tyler, the creator listeners !
 don’t int: power scalers, shifting antis, mahito likers/j, guilt trippers, uhh etc etc..
+
+
+<img src="https://i.pinimg.com/736x/1e/1d/64/1e1d64026eb7142a2e716217cea7ea8f.jpg" alt="This may contain: the instructions for how to make an all about me doll with pictures and text on it"/>
