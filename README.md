@@ -10,4 +10,7 @@ please int: jjk enjoyers, nanami devotees, reality shifters, shin fans, tyler, t
 don’t int: power scalers, shifting antis, mahito likers/j, guilt trippers, uhh etc etc..
 
 
-<img src="https://i.pinimg.com/736x/1e/1d/64/1e1d64026eb7142a2e716217cea7ea8f.jpg" alt="This may contain: the instructions for how to make an all about me doll with pictures and text on it"/>
+<img src="https://i.pinimg.com/736x/ac/48/23/ac4823fe8382ad46958930d56563e319.jpg" alt="This may contain: a drawing of a man holding a frisbee in his right hand and looking into the distance"/><img width="1200" height="394" alt="image" src="https://github.com/user-attachments/assets/88c947b9-d76a-443c-ac3b-20b23cdf1088" />
+
+
+<img src="https://i.pinimg.com/736x/85/0c/5e/850c5e29049e8fbcae5542a266cdd3e1.jpg" alt="This may contain: a black and white drawing of a man&#39;s face with his eyes closed, looking straight ahead"/>
