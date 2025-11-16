@@ -1,4 +1,5 @@
 miri, 19, black !
+
 minors int, just don’t be weird
 
 current hyperfixations: jujutsu kaisen, mob psycho 100, bleach, sakamoto days, frieren, mashle !!
