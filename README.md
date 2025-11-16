@@ -12,5 +12,5 @@ don’t int: power scalers, shifting antis, mahito likers/j, guilt trippers, uhh
 
 ────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────
 
- 
-blob:chrome-untrusted://media-app/03fc4f74-a28f-45f8-8a1e-5cd866701035
+
+ <img src="https://i.pinimg.com/736x/e5/e9/ca/e5e9caa27a24a65fda11e6772e81275b.jpg" alt="Story pin image"/>
