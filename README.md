@@ -24,4 +24,4 @@ don’t int: power scalers, shifting antis, mahito likers/j, guilt trippers, uhh
 
 
 drools....
- <img src="https://i.pinimg.com/736x/e5/e9/ca/e5e9caa27a24a65fda11e6772e81275b.jpg" alt="Story pin image"/>
+ <img src="https://i.pinimg.com/originals/32/3d/52/323d52457f5f31046c9333b802024115.gif" alt="This may contain: a man standing in front of a blue background with the sun shining down on him"/>
